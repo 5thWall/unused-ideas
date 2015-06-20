@@ -1,4 +1,4 @@
-stupid-ideas
+Unused Ideas
 ============
 
-A place to put all of my stupid ideas that I'm never going to make time for. Theft is encouraged, but please send me a message. :D
+A place to put all of my unused ideas that I haven't made time for. Theft is encouraged, but please send me a message. :D
